@@ -1,0 +1,1 @@
+Burger is an american or german dish which is mainly eaten with frenchfries and coke.It is world popular dish around the globe.it is found in 1880s in texas.The companies which sell burgers and own so much profit are example-McDonalds,Burger Kings etc.It is a soft and fluffy food.It has two types Veg and Non.Veg.
